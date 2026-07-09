@@ -1,0 +1,1 @@
+# Vidmore-Video-Converter-2.3.60-for-Mac
